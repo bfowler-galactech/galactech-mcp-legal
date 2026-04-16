@@ -1,0 +1,1 @@
+# galactech-mcp-legal
